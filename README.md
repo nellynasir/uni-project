@@ -1,1 +1,1 @@
-just a bunch of uni's projects/assignments :>
+just a bunch of zip files of uni's projects/assignments :>
